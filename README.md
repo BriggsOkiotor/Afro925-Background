@@ -53,4 +53,8 @@ At AFRO925 we create an enabling environment that provides the blueprint and the
 [Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
 
 
-♥️ ONE LOVE ♥️
+♥️ LET LOVE LEAD ♥️
+
+Foma Briggs.
+Originator, Afro925™ Movement
+
